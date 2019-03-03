@@ -5,3 +5,5 @@
 The song and lyrics can be found here: https://www.youtube.com/watch?v=ggYrq6TJuxs.
 
 Written and designed by Stephanie Pena and Leehe Mahalal using ink: https://www.inklestudios.com/ink/.
+
+The game can be found and played here: https://amateurtechnomancer.itch.io/111winchester. 
